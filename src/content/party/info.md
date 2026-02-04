@@ -66,14 +66,21 @@ Join us in celebrating Will and Louise's 50th birthday! We're excited to have yo
 Smart casual - feel free to dress up but keep it comfortable for dancing!
 
 ### Parking
-Free parking is available at The Grand Ballroom parking lot. Additional street parking is available on Celebration Street and adjacent streets.
+You can park in the road outside our house and nearby roads.  Please be respectful of the neighbours and don't block any driveways!
 
 ### Taxis
 
-- Uber operates in the vicinity
+On the way to us, we recommend the taxi rank on the __town__ side of the station (North Side) outside the kebab shop (also useful on the way home)
+
+Afterwards:
+
+- Uber (you know the drill)
 - Galaxy Cars can be used for pre-booked taxis +44 1483 722222
 
 ### Questions?
 If you have any questions, feel free to give us a call!
+
+Will: +44 7421 747173
+Louise: +44 7879 623302
 
 We can't wait to celebrate with you!
